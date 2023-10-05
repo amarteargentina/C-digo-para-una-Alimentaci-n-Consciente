@@ -1,1 +1,1 @@
-# C-digo-para-una-Alimentaci-n-Consciente
+En Amarte Argentina, con la guía de la Dra. Castaneda, exploramos el mundo de la alimentación sana y soberana. Más allá de solo comida, es sobre comunidad, salud y software que empodera a todos para tomar decisiones alimenticias informadas.
